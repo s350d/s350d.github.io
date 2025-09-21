@@ -1,1 +1,1 @@
-# BaranİNC.github.io
+# baraninc.github.io
